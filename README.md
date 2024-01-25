@@ -33,4 +33,30 @@ such as the Like button and the Remove from Likes functionality, contributing si
 
 
 
+https://github.com/NicoleTbt/Music-App-Clone/assets/124452338/251eb1d7-45d0-4df9-ac9f-80600d31fa9d
+
+
+
+
+https://github.com/NicoleTbt/Music-App-Clone/assets/124452338/84411d72-f4a2-4037-ae73-3d2421f2fdf7
+
+
+
+
+https://github.com/NicoleTbt/Music-App-Clone/assets/124452338/ccc0f66c-de54-4e1a-8724-bdef3e1d1f3d
+
+
+
+
+https://github.com/NicoleTbt/Music-App-Clone/assets/124452338/c8f1ea67-947a-48c2-a537-dd905db68450
+
+
+
+https://github.com/NicoleTbt/Music-App-Clone/assets/124452338/e76c12a2-72e8-48c4-a27e-7e383677a425
+
+
+
+
+https://github.com/NicoleTbt/Music-App-Clone/assets/124452338/6397ff07-1322-4e9d-afa2-c3b93e220503
+
 
